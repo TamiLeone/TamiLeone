@@ -12,7 +12,7 @@ You can click the Preview link to take a look at your changes.
 
 - 👯 I’m looking to collaborate on **new proyects**
 
-- 📄 Know about my experiences [I am a lawer, actually working at de Justice but y want to learn and do something new and diferent.](I am a lawer, actually working at de Justice but y want to learn and do something new and diferent.)
+- 📄 Know about my experiences (I am a lawer, actually working at de Justice but y want to learn and do something new and diferent.)
 
 - ⚡ Fun fact **Where am I and what am i doing? :)**
 
